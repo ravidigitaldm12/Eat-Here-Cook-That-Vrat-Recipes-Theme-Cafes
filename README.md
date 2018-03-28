@@ -1,0 +1,2 @@
+# Eat-Here-Cook-That-Vrat-Recipes-Theme-Cafes
+Here is the Great Indian Festival Recipe which can consume during fasting. This recipe is Easy and simple to make without much ado. This Indian festival dishes can make within 10 to 15 minutes. Festival food recipes like Navratri Special Biscuits, Navratri Special Uttapam, Navratri Special Gulab Jamun, Singhara Atta Ka Pakora, Samak Atta Ki Lapsi, Sabudana Atta Ke Dahi Bhalle, Kuttu Ke Atta Ka Cheela, Falahari Malpua Recipe, Singhare Ka Halwa, Rajgira Atta Ki Kachori.
